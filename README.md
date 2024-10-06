@@ -1,1 +1,1 @@
-Co cai cu cac
+Có cái con cặc tao nè! óc chó bấm vô 
