@@ -1,1 +1,1 @@
-ok anh yeu
+Co cai Loz Mother Fucker!
